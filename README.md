@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SanityMinds
+- 👀 I’m interested in Gaming, Making new friends and listening to music
+- 🌱 I’m currently learning Python & Javascript
+- 💞️ I’m looking to collaborate on discord bots, cool AI projects and anything which peaks my interest 
+- 📫 How to reach me .. my website is the best way https://www.bytelabs.site
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: People are more creative in the shower
